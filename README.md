@@ -1,16 +1,18 @@
-# 初遇最新下载地址（2020年12月16日更新）
+# 初遇最新下载地址（2021年1月21日更新）
 
 ### 点击以下链接进入下载页：
-### [ojj1.xyz](http://ojj1.xyz)<br> 
-### 主播版下载地址 [70nt.xyz](http://70nt.xyz)
+### [v6a8.xyz](http://v6a8.xyz)<br> 
+### 主播版下载地址 [762b.xyz](http://762b.xyz)
 （观众下载无法使用）
 
 备用观众版下载地址如下<br>     
-ojj1.xyz<br>  
+b91r.xyz<br>
+8eop.xyz<br>
 
 
 备用主播版下载地址如下<br>
-70nt.xyz<br> 
+crd5.xyz<br>
+e26z.xyz<br>
 
 
 # 初遇回家页简介
